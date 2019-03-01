@@ -9,3 +9,6 @@ Hierbij een opslijsting wie er allemaal naast mij zat tijdens de workshop:
 * Benoït
 
 De lesgever was Peter
+
+Hieronder moet er een afbeelding komen
+
