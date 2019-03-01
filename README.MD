@@ -8,3 +8,4 @@ Hierbij een opslijsting wie er allemaal naast mij zat tijdens de workshop:
 * Dirk
 * Benoït
 
+De lesgever was Peter
